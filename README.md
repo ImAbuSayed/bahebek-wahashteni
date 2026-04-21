@@ -18,7 +18,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> حبيبي في قلبي نار الأشواق
+> وروحي تنادي في كل الآفاق
+> بحبك وحشتيني يا نور العين
+> تعالى نعيش الهوى حبيبين
 > ...
 
 📄 **[View Full Lyrics →](./lyrics.txt)**
